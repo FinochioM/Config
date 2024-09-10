@@ -3,7 +3,7 @@
 :speech_balloon: EN / ES
 
 #### ⚙️ Currently:
-* Studying something at Davinci.
+* Studying Systems Analyst at Davinci.
 * Working at [**Nestle**](https://www.nestle.com.ar/).
 
 <br>
